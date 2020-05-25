@@ -5,6 +5,7 @@ All the material in this repo are for JOB INTERVIEW purpose ONLY!
 
 
 
+
 Should any copyright concerns arise, contact: sacrrie.yan@gmail.com
 
-For my fellow classmates who stumbled upon this page: NO PLAGIARIZING!
+For my fellow classmates who stumble upon this page: NO PLAGIARIZING!
